@@ -1,2 +1,2 @@
 # rsschool-cv12
-# https://GITHUB-Vickie33.github.io/rsschool-cv/cv
+# https://Vickie33.github.io/rsschool-cv/cv
